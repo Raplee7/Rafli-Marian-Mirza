@@ -1,2 +1,2 @@
 # Rafli-Marian-Mirza
-Bismillah semangat hidup
+//;.[[o-o0-i9u89g7t86vvyutyf
